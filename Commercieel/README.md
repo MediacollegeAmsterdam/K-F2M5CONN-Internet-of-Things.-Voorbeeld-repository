@@ -1,1 +1,5 @@
+Elevator Pitch voor potential investors
+One Page website Product Promotion
+Concurrentie en marktprijs onderzoek
+Usertest, rapport met conclusies en videofootage
 
